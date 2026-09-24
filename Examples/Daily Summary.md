@@ -2,4 +2,4 @@
 
 Organized my reading notes today.
 
-- Next: decide what to do.
+- Next: read 10 pages.
